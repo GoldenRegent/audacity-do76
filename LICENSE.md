@@ -1,4 +1,4 @@
-# 
+# Secret Vegas Pro for PC addons is the best Vegas Pro for PC addons with recording and VST-support. Safe, reliable, and optimized for maximum performance.
 
 
 
